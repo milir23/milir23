@@ -10,7 +10,7 @@
 
 - 😄 My pronoun is: Mili 🙂
 
-- ⚡ Fun fact: Beyond the code, I enjoy exploring various types of imagery in search of the perfect combination of creativity and design to inspire my projects.
+- ⚡ Fun fact: Beyond the code, I enjoy exploring various types of imagery in search of the perfect combination of creativity and design to inspire my projects. And my dog's name is: Claudio.
 
 
 
